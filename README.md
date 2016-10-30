@@ -1,0 +1,2 @@
+# fiqrilubis
+KOMPONEN KOMPUTER
